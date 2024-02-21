@@ -1,1 +1,1 @@
-# Hey! I'm Krzysztof 👋🏼🧑🏻‍💻
+# Hey, I'm Krzysztof 👋🏼🧑🏻‍💻
